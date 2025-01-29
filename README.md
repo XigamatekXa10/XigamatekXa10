@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @XigamatekXa10
 - 👀 I’m interested in Sports and Games
 - 🌱 I’m currently learning Developer
--
+-🌸🌸 Happy Lunar New Year 2025!
 -
 
 <!---
